@@ -29,4 +29,4 @@ youtub视频下载
 [云端下载youtube4k视频轻松保存到相册！谁看了不说666~](https://v.kuaishou.com/LJBOZr)<br>
 [youtube多国语言字幕视频下载也用上云端转码技术了，真是绝绝子！](https://v.kuaishou.com/RKoMfx)<br>
 [良心推荐！让你轻松保存油管视频的宝藏APP，苹果安卓都能下！](https://v.kuaishou.com/Y3mxZR)<br>
-我颠呐！这么简单保存youtube4k视频的方法还有谁不知道！https://www.yzmg.com/article/detail/?id=71463
+[我颠呐！这么简单保存youtube4k视频的方法还有谁不知道！](https://www.yzmg.com/article/detail/?id=71463)<br>
